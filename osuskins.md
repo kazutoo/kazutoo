@@ -2,6 +2,10 @@
 # [All skins here](https://mega.nz/folder/rdom2bZZ#6fBgjw7efVp6ODl0glAXFQ)
 
 
+# [Arknights](https://mega.nz/file/uRhwACqB#KJ2hYnvcC0yPRx0_iIJPA7vVWDOuTV3H1OghHLM3Ho0)
+![](https://i.ibb.co/cLVkL4w/screenshot617.jpg)
+
+
 # [Bacon Boi (Blue)](https://mega.nz/file/XA52kR5D#GBKNqtxOELjRPETiw7tWPIc-QQuCnyNCHrY_mfDufBA)
 ![](https://i.ibb.co/DtdbkLY/screenshot604.jpg)
 
