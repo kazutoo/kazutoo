@@ -2,6 +2,9 @@
 # [All skins here](https://mega.nz/folder/rdom2bZZ#6fBgjw7efVp6ODl0glAXFQ)
 
 
+# [boop](https://mega.nz/file/DIYVSCCC#li3lTRhdhhLkF1yOH9bVG85htaDlVEACZtXSgheVHFc)
+![](https://i.ibb.co/xq1L7xV/screenshot623.jpg)
+
 # [Arknights](https://mega.nz/file/uRhwACqB#KJ2hYnvcC0yPRx0_iIJPA7vVWDOuTV3H1OghHLM3Ho0)
 ![](https://i.ibb.co/cLVkL4w/screenshot617.jpg)
 
