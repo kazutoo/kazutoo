@@ -2,6 +2,10 @@
 # [All skins here](https://mega.nz/folder/rdom2bZZ#6fBgjw7efVp6ODl0glAXFQ)
 
 
+#[Concept v2(NM,DT](https://mega.nz/folder/lskAUJCK#rGxqsbl2UIMllQWllj3-0Q)
+![](https://i.ibb.co/CvBhgLH/screenshot625.jpg)
+
+
 # [boop](https://mega.nz/file/DIYVSCCC#li3lTRhdhhLkF1yOH9bVG85htaDlVEACZtXSgheVHFc)
 ![](https://i.ibb.co/xq1L7xV/screenshot623.jpg)
 
