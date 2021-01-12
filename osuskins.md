@@ -2,7 +2,7 @@
 # [All skins here](https://mega.nz/folder/rdom2bZZ#6fBgjw7efVp6ODl0glAXFQ)
 
 
-# [beep (kazuto edit)](https://mega.nz/file/yABkHJjJ#dyw-Q9nT43CaJ-P-2GBkJdIZUxxfu2jP1GHMOCThVEk)
+# [beep (kazuto edit)](https://mega.nz/file/OYIA1JiL#EZ1R20XAyRoMDeDbMBsxLUOOcsN-Sz7Q4AJU9QIl7nQ)
 ![](https://i.ibb.co/VHX1xsz/screenshot671.jpg)
 
 # [Concept v2(NM,DT)](https://mega.nz/folder/lskAUJCK#rGxqsbl2UIMllQWllj3-0Q)
