@@ -2,6 +2,9 @@
 # [All skins here](https://mega.nz/folder/rdom2bZZ#6fBgjw7efVp6ODl0glAXFQ)
 
 
+# [bohidk (green cursor) by kazutoo](https://mega.nz/file/KJIUjJRI#topGnDlIvHY3JmDRGzZQiIY3R_sRF3febwQ5QVNavHc)
+![](https://i.ibb.co/0JNfg79/screenshot677.jpg}
+
 # [beep (kazuto edit)](https://mega.nz/file/OYIA1JiL#EZ1R20XAyRoMDeDbMBsxLUOOcsN-Sz7Q4AJU9QIl7nQ)
 ![](https://i.ibb.co/VHX1xsz/screenshot671.jpg)
 
