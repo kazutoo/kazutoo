@@ -1,6 +1,8 @@
 # kazutoo's used osu skins
 # [All skins here](https://mega.nz/folder/rdom2bZZ#6fBgjw7efVp6ODl0glAXFQ)
 
+# [NetherSonic Non-weeb](https://mega.nz/file/jUhW1QYY#j_sLH-jkpT6YWlswj2mWoFrbKy6LAxE2Fk4pEOAbqZA)
+![](https://i.ibb.co/wYNwVLg/screenshot1226.jpg)
 
 # [bohidk (green cursor) by kazutoo](https://mega.nz/file/KJIUjJRI#topGnDlIvHY3JmDRGzZQiIY3R_sRF3febwQ5QVNavHc)
 ![](https://i.ibb.co/0JNfg79/screenshot677.jpg)
