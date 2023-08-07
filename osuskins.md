@@ -1,6 +1,9 @@
 # kazutoo's used osu skins
 # [All skins here](https://mega.nz/folder/rdom2bZZ#6fBgjw7efVp6ODl0glAXFQ)
 
+# [BOOP CAPAREZZA](https://mega.nz/file/lKk1VbBI#9QnTYqHiG90VNydvTu2GHSjW-6gzEA977no9RQEq1wc)
+![](![image](https://github.com/kazutoo/kazutoo/assets/65335714/d6b9a9c9-cba4-40dd-b2d4-cad7fe6dd38e))
+
 # [NetherSonic Non-weeb](https://mega.nz/file/jUhW1QYY#j_sLH-jkpT6YWlswj2mWoFrbKy6LAxE2Fk4pEOAbqZA)
 ![](https://i.ibb.co/wYNwVLg/screenshot1226.jpg)
 
